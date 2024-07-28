@@ -6,6 +6,7 @@ I’m interested in the Economy of Cities.
   
 
 
-
+I am seeking **Ph.D. students and research assistants** to join my team starting in Fall 2024. 
+Additionally, I am looking for a **postdoctoral associate** with an academic background in urban and regional economics, ideally with some experience in field experiment. Packages are competitive and in line with international standards. If you are interested in these opportunities, please submit your CV and a brief statement of interest to binzhewang@hkust-gz.edu.cn.
 
 
